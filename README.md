@@ -1,2 +1,2 @@
 # courses
-Cources u took or am taking
+Cources i took or am taking.
